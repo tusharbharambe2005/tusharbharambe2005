@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://tusharbharambe2005.github.io/Portfolio/](https://tusharbharambe2005.github.io/Portfolio/)
 
-- 📫 How to reach me **jagdishbharambe1@gmail.com**
+- 📫 How to reach me **tusharbharambe2005@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
